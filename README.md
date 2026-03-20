@@ -28,8 +28,8 @@
 ---
 
 🌐 **Connect With Me**
-- 🔗 LinkedIn: www.linkedin\in\dewansh007
-- 📸 Instagram: www.instagram.com\dk_ki_vibes
+- 🔗 LinkedIn: [www.linkedin\in\dewansh007](https://www.linkedin.com/in/dewansh007)
+- 📸 Instagram: [www.instagram.com\dk_ki_vibes](https://www.instagram.com/dk_ki_vibes)
 - 💼 Portfolio: Pending...
 
 ---
